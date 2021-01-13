@@ -1,4 +1,4 @@
-THe steps to create marshmallow :
+The steps to create marshmallow :
 
 Prepare the pan. Grease well (cooking spray, butter or vegetable shortening) and then cover in powdered sugar.
 
